@@ -1,0 +1,1 @@
+Bom. Eu pensei em fazer um site com vários anexos e coloquei um anime que eu gosto muito inicialmente vou fazer uma página para cada personagem e falar sobre ele e um video pequeno nele mostrando cada personagem.# teste-github
